@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @BoredApps
 - 👀 I’m interested in ChatGPT, LLMs, IT Security, Privacy, and OSINT. 
 - 🌱 I’m currently studying for my CySA
-- 💞️ I’m looking to collaborate on ...
 - 📫 Reach me ...feedback@boredapps.ai
 - 🌐 https://boredapps.ai
 
