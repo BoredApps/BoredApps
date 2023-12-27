@@ -1,4 +1,4 @@
-<img align="right" style="hieght:400px; width:400px;padding:30px;" src="https://boredapps.ai/wp-content/uploads/2023/11/logo_600.png">
+
 
 ## 🎉 Welcome to BoredApps
 Where the extraordinary world of OpenAI’s ChatGPT technology meets the everyday user! I am dedicated to making the power of AI, and ChatGPT accessible, enjoyable, and beneficial to everyone.
