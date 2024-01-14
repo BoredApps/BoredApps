@@ -10,6 +10,7 @@ I am driven by the excitement and possibilities that GPT technology offers. I be
 Stay ahead of the curve. When you join our community you'll receive exclusive updates, insider tips, and early access to our newest offerings all conveniently delivered straight to your inbox @ https://sendfox.com/realboredapps 
 
 <hr>
+
 [![](https://boredapps.ai/wp-content/uploads/2023/11/video_screenshot.png)](https://www.youtube.com/watch?v=7BHdKhKqa1w)
 
 
