@@ -7,7 +7,7 @@ I am driven by the excitement and possibilities that GPT technology offers. I be
 <hr>
 
 ### 🤓 Be the First to Discover What's New at BoredApps!
-Stay ahead of the curve. When you join our community you'll receive exclusive updates, insider tips, and early access to our newest offerings all conveniently delivered straight to your inbox @ https://sendfox.com/realboredapps 
+Stay ahead of the curve. When you join our community you'll receive exclusive updates, insider tips, and early access to our newest offerings all conveniently delivered straight to your inbox. Go to -> https://sendfox.com/realboredapps 
 
 <hr>
 
