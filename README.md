@@ -1,6 +1,6 @@
 
 
-## 🎉 Welcome to BoredApps
+## 🎉 Welcome to BoredApps AI
 Where the extraordinary world of OpenAI’s ChatGPT technology meets the everyday user! I am dedicated to making the power of AI, and ChatGPT accessible, enjoyable, and beneficial to everyone.
 
 I am driven by the excitement and possibilities that GPT technology offers. I believe in its potential to enhance our daily lives in ways we never imagined, and I’m on a mission to share that excitement with you. My goal is to bridge the gap between the cutting-edge technology of ChatGPT and the average user who might not be familiar with it, creating apps that are approachable, helpful, useful, and even entertaining.
