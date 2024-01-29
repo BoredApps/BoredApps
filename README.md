@@ -11,7 +11,7 @@ Stay ahead of the curve. When you join our community you'll receive exclusive up
 
 <hr>
 
-[![](https://boredapps.ai/wp-content/uploads/2023/11/video_screenshot.png)](https://www.youtube.com/watch?v=7BHdKhKqa1w)
+[![](https://boredapps.ai/wp-content/uploads/2023/11/video_screenshot.png)](https://youtu.be/LB7KXduPkn4?si=Pq3SH0BMW2nz6yo-)
 
 
 🌐 https://boredapps.ai
